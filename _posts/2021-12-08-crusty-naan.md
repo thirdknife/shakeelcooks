@@ -47,7 +47,7 @@ These naans should have crusty and buttery flaovour.
 
 So easy to make at your comfort.
 
-![Naan](https://images.unsplash.com/photo-1420730614543-e39f93134b0d?w=1560&h=940&fit=crop)
+![Naan](https://user-images.githubusercontent.com/885125/145302509-82806acb-2112-4f9f-a2fb-11a14a786d00.jpeg)
 
 Milk gives it a great texture and taste.
 
